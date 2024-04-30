@@ -1,1 +1,0 @@
-# ghaiteyy.github.io
